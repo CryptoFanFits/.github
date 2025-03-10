@@ -1,4 +1,4 @@
-Yanflix.com: Your Ultimate Destination for Movies and Gaming
+<a href="https://yanflix.com/">Yanflix.com</a>: Your Ultimate Destination for Movies and Gaming
 
 In the ever-expanding world of digital entertainment, Yanflix.com emerges as a go-to platform for movie enthusiasts and gamers alike. With a vast collection of films and gaming content, Yanflix is setting new standards in the online streaming and gaming industry.
 
